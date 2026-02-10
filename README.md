@@ -1,0 +1,1 @@
+# Amazon-Finds-DIY-Inspiration-privacy-policy
